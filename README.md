@@ -1,0 +1,1 @@
+# ahmetakifakyazici.github.io
